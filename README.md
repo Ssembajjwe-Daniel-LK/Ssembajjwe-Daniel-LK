@@ -1,6 +1,6 @@
 Ssembajjwe-Daniel-LK
 - I’m interested in practical work
-- I’m currently studying Electrical Engineering Bachelor 
+- I’m currently studying Artificial Intelligence Bachelor 
 - Reach me through Email-ssembajjwedaniel2004@gmail.com 
 -  Fun fact: I can form my own language and speak it
 <!---
